@@ -1,1 +1,0 @@
-# JHAYESGL.github.io
